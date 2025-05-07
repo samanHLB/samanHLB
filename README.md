@@ -27,7 +27,7 @@ Here are a few projects I've worked on:
 Feel free to reach out!
 
 - **Email:** [Hallajbashisaman@gmail.com](mailto:Hallajbashisaman@gmail.com)
-- **LinkedIn:** [Saman hallajbashi]([https://linkedin.com/in/yourprofile](https://www.linkedin.com/in/saman-hallajbashi-b283632b8/))
+- **LinkedIn:** [Saman hallajbashi](https://www.linkedin.com/in/saman-hallajbashi-b283632b8/)
 - **Telegram:** [@saman_hlb](https://t.me/saman_hlb)
 
 Thanks for visiting my profile!
