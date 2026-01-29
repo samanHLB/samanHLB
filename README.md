@@ -1,4 +1,4 @@
-# 👋 Hello! I'm Saman Hallajbashi (or @samanHLB)
+# 👋 Hello! I'm Saman Hallajbashi
 
 Welcome to my GitHub profile!
 
